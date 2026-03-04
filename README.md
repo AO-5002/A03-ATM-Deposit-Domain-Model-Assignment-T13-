@@ -1,1 +1,1 @@
-repo made by andres ortiz
+team is Andres Ortiz, Jeoungjin Pak, Aima Salman, Zain Mirza
